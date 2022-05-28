@@ -9,3 +9,5 @@ Son Serveur : discord.gg/labible
 **aller report un max ce scammer**
 
 Reversed by Nelectrons#0001
+
+Mon Serveur Discord : https://discord.gg/GHD64HWP
